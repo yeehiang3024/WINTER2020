@@ -21,5 +21,5 @@ Ameer Khan (12:30pm)
 Bryan Guo (12:30pm)  
 Joey Mauer (12:30pm)  
 Stephen Chen (3:30pm)  
-Alex Veroulis (12:30) . 
-Colin Rabago (12:30) . 
+Alex Veroulis (12:30pm)   
+Colin Rabago (12:30pm)   

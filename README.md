@@ -20,6 +20,6 @@ Lael (12:30pm)
 Ameer Khan (12:30pm)  
 Bryan Guo (12:30pm)  
 Joey Mauer (12:30pm)  
-Stephen Chen (3:30pm) 
-Alex Veroulis (12:30)
-Colin Rabago (12:30)
+Stephen Chen (3:30pm)  
+Alex Veroulis (12:30) . 
+Colin Rabago (12:30) . 

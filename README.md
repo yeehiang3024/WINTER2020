@@ -14,3 +14,12 @@ Jesse (12:30pm)
 Ami (12:30pm)  
 Eli (3:30pm)  
 Lael (12:30pm)  
+
+#### Team 1: Houston Asterisks  
+
+Ameer Khan (12:30pm)  
+Bryan Guo (12:30pm)  
+Joey Mauer (12:30pm)  
+Stephen Chen (3:30pm) 
+Alex Veroulis (12:30)
+Colin Rabago (12:30)

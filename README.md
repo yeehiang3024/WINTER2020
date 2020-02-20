@@ -24,4 +24,10 @@ Stephen Chen (3:30pm)
 Alex Veroulis (12:30pm)   
 Colin Rabago (12:30pm)   
 
-#### Team 2:
+#### Team 2: 60% of the Time, It Works Every Time  
+
+Potragent Phuong (12:30pm)
+Constantin Flocos (12:30pm)
+Ashley Scales (12:30pm)
+Jacquelyn Nguyen (12:30pm)
+Michael Stranieri (12:30pm)

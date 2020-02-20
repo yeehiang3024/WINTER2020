@@ -23,3 +23,5 @@ Joey Mauer (12:30pm)
 Stephen Chen (3:30pm)  
 Alex Veroulis (12:30pm)   
 Colin Rabago (12:30pm)   
+
+#### Team 2:

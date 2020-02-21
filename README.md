@@ -19,20 +19,20 @@ Colin Rabago (12:30pm)
 
 #### Team 2: 60% of the Time, It Works Every Time  
 
-Potragent Phuong (12:30pm) 
-Constantin Flocos (12:30pm)  
-Ashley Scales (12:30pm) 
-Jacquelyn Nguyen (12:30pm) 
-Michael Stranieri (12:30pm)  
+Potragent Phuong (12:30pm)   
+Constantin Flocos (12:30pm)    
+Ashley Scales (12:30pm)   
+Jacquelyn Nguyen (12:30pm)   
+Michael Stranieri (12:30pm)   
 
 #### Team 3: Vivian's Minions
 
-Isabela Devia (3:30pm) 
-Shirley Mach (3:30pm) 
-Rachel Rusch (3:30pm) 
-Edward Shiang (3:30pm)  
-Sarah Truax (3:30pm)  
-Roger Yuan (12:30pm)  
+Isabela Devia (3:30pm)   
+Shirley Mach (3:30pm)   
+Rachel Rusch (3:30pm)   
+Edward Shiang (3:30pm)    
+Sarah Truax (3:30pm)    
+Roger Yuan (12:30pm)    
 
 #### Team 4: Vivian Vipers  
 

@@ -17,11 +17,11 @@ Lael (12:30pm)
 
 #### Team 1: Houston Asterisks  
 
-Ameer Khan (12:30pm)  
-Bryan Guo (12:30pm)  
-Joey Mauer (12:30pm)  
+Ameer Khan (12:30pm) 
+Bryan Guo (12:30pm) 
+Joey Mauer (12:30pm) 
 Stephen Chen (3:30pm)  
-Alex Veroulis (12:30pm)   
+Alex Veroulis (12:30pm)  
 Colin Rabago (12:30pm)   
 
 #### Team 2: 60% of the Time, It Works Every Time  

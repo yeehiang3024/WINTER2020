@@ -40,3 +40,12 @@ Anton Citko (3:30pm)
 Kendrick Brayman (3:30pm)   
 Karl Elbakian (12:30pm)   
 Ali Heera (3:30pm)   
+
+#### Team 5: Knitting...  
+
+Valeria M. Lopez Robles (3:30)
+Lucas Han (3:30)
+Jianzhen Wang(3:30)
+Sarita Lee (3:30)
+Michelle Hsieh (3:30)
+Antonius Raharja(3:30)

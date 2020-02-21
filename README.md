@@ -31,3 +31,10 @@ Rachel Rusch (3:30pm)
 Edward Shiang (3:30pm) 
 Sarah Truax (3:30pm)
 Roger Yuan (12:30pm) 
+
+#### Team 3: Vivian Vipers  
+
+Anton Citko (3:30pm)  
+Kendrick Brayman (3:30pm)  
+Karl Elbakian (12:30pm)  
+Ali Heera (3:30pm)  

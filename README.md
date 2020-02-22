@@ -49,3 +49,13 @@ Jianzhen Wang(3:30)
 Sarita Lee (3:30)  
 Michelle Hsieh (3:30)  
 Antonius Raharja(3:30)  
+
+#### Team 6: Trendsetters
+
+Keith Atienza (12:30pm)  
+Rebecca Chung (12:30pm)  
+Jeanette Lin (12:30pm)  
+Josh Park (12:30pm)  
+Junghwan Park (12:30pm)   
+Krystal Xu (12:30pm)  
+

@@ -59,3 +59,12 @@ Josh Park (12:30pm)
 Junghwan Park (12:30pm)   
 Krystal Xu (12:30pm)  
 
+### Team 7: Walky Talky
+
+Inyong Lee (3:30pm)
+Yixiang Zhang (12:30 pm)
+Zhaoying Chen (12:30pm)
+Lyu Zhang (3:30pm)
+Matt Matsuo(12:30pm)
+Zhaoying Chen(12:30pm)
+Gregory Chang(3:30pm) 
